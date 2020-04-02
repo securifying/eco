@@ -85,5 +85,6 @@ https://www.indiatoday.in/news-analysis/story/trade-in-the-time-of-covid-19-the-
 
 ![](https://paper-attachments.dropbox.com/s_B2A2411E6DE3A3E974608329C9A1DEF61518B4B978374F90D006D038B9491CD4_1585666896457_file.jpeg)
 
-![](/static/img/pixel.gif)
+![](https://paper-attachments.dropbox.com/s_B2A2411E6DE3A3E974608329C9A1DEF61518B4B978374F90D006D038B9491CD4_1585813907651_image.png)
+
 
